@@ -1,0 +1,1 @@
+Pozz s ispita 
